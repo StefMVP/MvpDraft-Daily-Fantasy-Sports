@@ -75,7 +75,7 @@ Key Differentiators of MVP Draft:
 - ![Img](img/tutorial/2.png)
 
 # Other
-We regret to announce that MVPDraft.com has shut down the platform. Don't hesitate to reach out to discuss potential partnerships.
+We regret to announce that MVPDraft.com has shut down the platform. Don't hesitate to reach out to discuss potential partnerships. Contact: https://gostef.com/
 
 # Link
 - https://twitter.com/MVPDraft
